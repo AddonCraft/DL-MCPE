@@ -6,4 +6,6 @@ Download MCPEDL app for Android/iOS/Windows : [Click This Link](https://www.medi
 
 Download Mods for Android/iOS : [Click This Link](https://mcpedl.org)
 
-[Color](#43
+All links are safe and tested by our team.
+
+Powered by [GitHub](https://github.com) and [Google](https://google.com)
